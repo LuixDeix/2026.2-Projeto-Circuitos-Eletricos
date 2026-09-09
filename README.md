@@ -1,0 +1,1 @@
+# 2026.2---Projeto-Circu-tos-El-tricos
