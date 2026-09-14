@@ -1,1 +1,1 @@
-# 2026.2---Projeto-Circu-tos-El-tricos
+# 2026.2---Projeto-Circuitos-Eletricos
